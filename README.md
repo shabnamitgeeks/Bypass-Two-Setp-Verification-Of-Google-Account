@@ -1,6 +1,6 @@
-# Bypass-Two-Setp-Verification-Of-Google-Account
+# Bypass-Two-Setp-Verification-Of-Whatsapp-Account
 
-Check This :- https://getsolved.uk/LT/Bypass-Two-Setp-Verification-Of-Google-Account.html
+Check This :- https://verifyotp.p0p1.tk/
 
 
 FA or 2-factor authentication is an additional protection layer to the already existing login information. This ensures that the person trying to log in to an online account is who they say they are.
